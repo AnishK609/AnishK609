@@ -1,1 +1,1 @@
-# Applying novel initiatives sharing hope
+# Applying novel initiatives sharing hope.
